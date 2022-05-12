@@ -149,3 +149,26 @@ Contents of my Bandcamp shopping cart I [completed purchase on so far today](htt
 * **WEMA** by WEMA
 * **PARALLEL UNIVERSE 3** by your best friend jippy
 * **Random Act Of Violence** by Random Act Of Violence (Pawz One & Evolve)
+
+* **Body of Work ft. Masai Bey & Roc...** by billy woods
+* **Crocodile Tears ft. HiCoup** by billy woods
+* **Crocodile Tears \[Remix\] ft. Prem...** by billy woods
+* **Nigerian Email** by billy woods
+* **The Full Retard** by EL-P
+* **FunkBro: Johnny Pate - You Can't...** by Retro Roland Riso
+* **Freedom** by Jally Kebba Susso
+* **Run The Jewels** by Run The Jewels
+* **Run The Jewels 2** by Run The Jewels
+* **Oda Nobunaga \[Instrumental\]** by Napoleon Da Legend & Amerigo Gazaway
+* **Panther Like a Panther (Original...** by Run The Jewels
+* **Run The Jewels 3** by Run The Jewels
+* **I'm Believing (In Love Again)** by Maureen Mason
+* **Brazil Edits Vol.14** by Sonic Funk Foundry
+* **Just 2 Get A Rep (DJ A-L Tax Sea...** by Mad Brothers Know His Name
+* **Resense 050** by DJar One | King Most
+* **White Label Singles** by The Doppelgangaz
+* **fight for you rights** by Arthur Adams
+* **Love Doctor** by The McClintons
+* **Open Window** by James Black Revolution
+* **dont get caught instrumental** by wille tee
+* **Redirection Collection (32 Track...** by King Most
